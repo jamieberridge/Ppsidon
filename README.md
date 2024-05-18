@@ -1,1 +1,1 @@
-This is the best possible thing
+This is the best possible app
